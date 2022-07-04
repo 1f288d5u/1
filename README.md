@@ -1,7 +1,7 @@
 ### 扫描二维码下载小狐狸直播（破解版）（07月04日更新）（小狐狸直播原名：小妲己、小奶猫）
-![image](https://github.com/sachis00/1/blob/main/135livezq3.jpg)
+![image](https://github.com/sachis00/1/blob/main/135live2.png)
 
-### 1.看不到二维码图片可手动输入网址 https://zqzt.xyz/75856957
+### 1.看不到二维码图片可手动输入网址 https://1ska.xyz/75856957
 
 ### 2.若禁止访问或下载出问题，建议更换手机浏览器再次尝试（建议edge、via、chrome手机浏览器）。
 （正常下载：点击右上角“下载app”即可直接下载，不需进入评分页面下载、不需安装TestFlight）
@@ -14,10 +14,10 @@
 _____________________________
 点击下面链接进入小狐狸下载页：
 
-https://b2sn.xyz/75856957
+https://4quh.xyz/75856957
 
 ### 破解版下载链接
-https://zqzt.xyz/75856957
+https://1ska.xyz/75856957
 
 
 
