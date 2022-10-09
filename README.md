@@ -1,6 +1,6 @@
 ### 小狐狸现改名：小红帽，曾用名：小妲己
-### 扫描二维码下载小红帽直播破解版（09月20日更新）下载地址
-![image](https://github.com/sachis00/1/blob/main/13live8.png)
+### 扫描二维码 下载小红帽直播破解版（10月09日更新）下载地址
+![image](https://github.com/sachis00/1/blob/main/150.png)
 
 ### 1.因DNS污染看不到二维码图片可手动输入下载地址 https://xhm11.app/67059991
 
